@@ -1,2 +1,2 @@
 # HelloWord
-Idk
+Idk what to say, im just learning about that lmao
